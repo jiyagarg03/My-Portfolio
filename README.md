@@ -1,0 +1,1 @@
+Welcome to my personal portfolio website! Here, you can explore my background, educational journey, professional experience, and projects I've worked on.
